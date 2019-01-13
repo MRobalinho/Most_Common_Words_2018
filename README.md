@@ -8,6 +8,7 @@ In Portugal https://ncultura.pt/as-palavras-mais-populares-em-2018-pesquisadas-n
 By Manuel Robalinho 12-01-2019
 
 ## Collins Dictionary 2018 word of the year revealed
+Collins Dictionary’s lexicographers monitor the 4.5 billion-word Collins Corpus and create the annual list of new and notable words that reflect an ever-evolving culture and the preoccupations of those who use it.
 
 ### Collins Dictionary definitions
 
